@@ -104,6 +104,8 @@ This is a list of all Black Friday Deals for macOS / iOS Software & Books in 202
 ### 💸 [Tonal Therapy](https://www.craft.do/s/QBsitp7TQPkm4z) - ACRN Therapy app for people who suffer from tinnitus. • 57% off
 ### 💸 [PlantPal](https://apps.apple.com/app/apple-store/id1566070492?pt=118649576&ct=plantpal.net&mt=8) — Care companion for happy & healthy house plants • 50% off the first year
 ### 💰 [Shelf](https://apps.apple.com/app/id6443596253) — Pin photos, text, and actions to your Lock Screen. For iPhone · Up to 40% off
+### 💸 [HiarstyleAI](https://www.hairstyleai.com) — Try new hairstyles with AI technology · 50% off already applied
+
 
 ## Social
 ### 💰 [Bird search](https://birdsearch.carrd.co) - Advanced search app for Twitter that unlocks lot of hidden fields - 60% off on one time payment. Available on iOS/macOS/iPadOS
